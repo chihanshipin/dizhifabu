@@ -2,15 +2,15 @@
 
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### ⭐️ 最新地址：https://106ktv.xyz
+### ⭐️ 最新地址：https://972ktv.xyz
 
-### ⭐️ 最新地址：https://815ktv.xyz
+### ⭐️ 最新地址：https://962ktv.xyz
 
-### ⭐️ 最新地址：https://409ktv.xyz
+### ⭐️ 最新地址：https://869ktv.xyz
 
-### ⭐️ 最新地址：https://917ktv.xyz
+### ⭐️ 最新地址：https://918ktv.xyz
 
-### ⭐️ 最新地址：https://426ktv.xyz
+### ⭐️ 最新地址：https://782ktv.xyz
 
 
 
