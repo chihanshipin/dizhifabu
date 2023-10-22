@@ -2,13 +2,13 @@
 
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### ⭐️ 最新地址：https://jjetv771.xyz
+### ⭐️ 最新地址：https://992kp8.com
 
-### ⭐️ 最新地址：https://jjetv309.xyz
+### ⭐️ 最新地址：https://992kp13.com
 
-### ⭐️ 最新地址：https://jjetv398.xyz
+### ⭐️ 最新地址：https://992kp16.com
 
-### ⭐️ 最新地址：https://jjetv830.xyz
+### ⭐️ 最新地址：https://992kp18.com
 
 
 
