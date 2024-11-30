@@ -2,21 +2,21 @@
 
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### ⭐️ 最新地址：https://992kp.pppp792.link
+### ⭐️ 最新地址：https://992kp.pppp831.xyz
 
-### ⭐️ 最新地址：https://992kp.pppp322.link
+### ⭐️ 最新地址：https://992kp.pppp831.link
 
-### ⭐️ 最新地址：https://992kp.pppp762.link
+### ⭐️ 最新地址：https://992kp.pppp915.xyz
 
-### ⭐️ 最新地址：https://992kp.pppp360.xyz
+### ⭐️ 最新地址：https://992kp.pppp915.link
 
-### ⭐️ 最新地址：https://992kp.pppp360.link
+### ⭐️ 最新地址：https://992kp.pppp823.xyz
 
-### ⭐️ 最新地址：https://992kp.pppp183.xyz
+### ⭐️ 最新地址：https://992kp.pppp823.link
 
 
 
-### 地址收藏页：https://992kp79.com (992地址)
+### 地址收藏页：https://992kp94.com (992地址)
 ### 📧 自动回复最新地址邮箱：chihan@mail.com
 ### 紧急提醒！近期非法跳转等活动频发
 ### 如果点击网址进入后发现不是本站，请立即返回并选择此处的[【防劫持通道】](https://23.224.130.222:7583)
