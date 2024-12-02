@@ -2,17 +2,13 @@
 
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### ⭐️ 最新地址：https://992kp.pppp906.xyz
+### ⭐️ 最新地址：https://992kp.pppp517.xyz
 
-### ⭐️ 最新地址：https://992kp.pppp906.link
+### ⭐️ 最新地址：https://992kp.pppp517.link
 
-### ⭐️ 最新地址：https://992kp.pppp898.xyz
+### ⭐️ 最新地址：https://992kp.pppp852.xyz
 
-### ⭐️ 最新地址：https://992kp.pppp898.link
-
-### ⭐️ 最新地址：https://992kp.pppp677.xyz
-
-### ⭐️ 最新地址：https://992kp.pppp677.link
+### ⭐️ 最新地址：https://992kp.pppp852.link
 
 
 
