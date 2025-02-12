@@ -2,13 +2,13 @@
 
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### ⭐️ 最新地址：https://992kp.11kp11.xyz
+### ⭐️ 最新地址：https://992kp.60kp60.work
 
-### ⭐️ 最新地址：https://992kp.19kp19.work
+### ⭐️ 最新地址：https://992kp.20kp20.work
 
-### ⭐️ 最新地址：https://992kp.50kp50.work
+### ⭐️ 最新地址：https://992kp.95kp95.work
 
-### ⭐️ 最新地址：https://992kp.21kp21.xyz
+### ⭐️ 最新地址：https://992kp.58kp58.work
 
 
 
