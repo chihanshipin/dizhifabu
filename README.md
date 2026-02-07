@@ -2,17 +2,17 @@
 
 ### ‼️微信/QQ用户请长按复制地址到浏览器里访问‼️
 
-### ⭐️ 最新地址：https://992kp.kp38kp.com:8443
+### ⭐️ 最新地址：https://992kp.kp40kp.com:8443
 
-### ⭐️ 最新地址：https://992kp.kp38kp.com:9443
+### ⭐️ 最新地址：https://992kp.kp40kp.com:9443
 
-### ⭐️ 最新地址：https://992kp.kp38kp.com:9443
+### ⭐️ 最新地址：https://992kp.kp40kp.com:9443
 
-### ⭐️ 最新地址：https://992kp.kp39kp.com:8443
+### ⭐️ 最新地址：https://992kp.kp41kp.com:8443
 
-### ⭐️ 最新地址：https://992kp.kp39kp.com:9443
+### ⭐️ 最新地址：https://992kp.kp41kp.com:9443
 
-### ⭐️ 最新地址：https://992kp.kp39kp.com:9443
+### ⭐️ 最新地址：https://992kp.kp41kp.com:9443
 
 
 
